@@ -8,4 +8,5 @@
 
 📫 How to reach me abhinavt00001@gmail.com
 
-⚡ Fun fact: Just a neophyte..
+⚡ Fun fact: Just a learner
+
